@@ -9,4 +9,5 @@ https://www.linkedin.com/in/eduardosimões/
 
 https://edabit.com/challenge/yFJzLfYghz7ZtsyAN
 
-
+Utilizei o processo para estudar um pouco mais e acabei fazendo outro desafio sobre o Volume do Cone, posso enviar caso queiram. 
+Abraços.
